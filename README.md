@@ -1,4 +1,5 @@
 ## Hi, This is Gaeun Seo👋
+- Becoming a UX/UI designer who brings warmth to people
 <br>
 
   
